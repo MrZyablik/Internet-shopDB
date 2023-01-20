@@ -1,2 +1,2 @@
 # Internet-shopDB
-![image_2023-01-18_22-12-44](https://user-images.githubusercontent.com/101240900/213707666-1934c2ba-9353-4a05-9648-592018be1c6c.png)
+![photo_2023-01-20_16-37-49](https://user-images.githubusercontent.com/101240900/213708529-b3d56e63-be8f-4748-a0c7-00c8a9ba8000.jpg)
